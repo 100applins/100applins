@@ -1,1 +1,1 @@
-pokemon is live creepypasta is laugh bfdi is love <3
+pokemon is live creepypasta is laugh object shows is love <3
